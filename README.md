@@ -11,7 +11,7 @@
 
 - My are of Interest's are **Web development atm**
 
-- 📝 I regularly write articles on [https://twitter.com/itsHARBAOUI](https://twitter.com/harbaouighaith)
+- 📝 I regularly write articles on [https://twitter.com/harbaouighaith](https://twitter.com/harbaouighaith)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
